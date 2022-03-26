@@ -1,3 +1,2 @@
 # CatboiNuko.github.io
-Nya?
-Nya?????
+This Is Probably Trashed I'm Sorry ><
